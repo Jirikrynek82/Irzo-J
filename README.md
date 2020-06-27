@@ -1,2 +1,0 @@
-# Irzo-J
-Agnieszka Marszałek 
